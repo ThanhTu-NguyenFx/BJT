@@ -1,0 +1,2 @@
+# BJT
+LÝ THUYẾT VỀ BJT
